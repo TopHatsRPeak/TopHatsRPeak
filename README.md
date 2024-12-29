@@ -5,6 +5,6 @@
 
 ## 🧀 _My fandoms are: Cookie Run: Ovenbreak, Balan Wonderworld, A Hat in Time, D4DJ, PJSK, Honkai3rd and Reverse: 1999_ 🎩
 
-## 🎩 _I LOVE ROGUEFORT COOKIE W ALL MY HEART!!! THEYRE ONE OF MY COMFORT CHARACTERS! ROGUEFORT FANS PLS INT!!!_ 🧀
+## 🎩 _I LOVE ROGUEFORT COOKIE W ALL MY HEART!!! THEYRE ONE OF MY COMFORT CHARACTERS! ROGUEFORT FANS PLS INT!!! LETS BE FRIENDS!!_ 🧀
 
 ![мой айкью достиг отметки папашки мистера макса](https://github.com/user-attachments/assets/a96a0511-6c2f-490b-9f90-25909e523be5)
