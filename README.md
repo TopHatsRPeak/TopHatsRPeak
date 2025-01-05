@@ -3,8 +3,10 @@
 
 ## 🎩 _Im a digital artist, cookie run mememaker, and just a stupid person who loves Roguefort Cookie (and other thieves hehehehe)_ 🧀
 
-## 🧀 _My fandoms are: Cookie Run: Ovenbreak, Balan Wonderworld, A Hat in Time, D4DJ, PJSK, Honkai3rd and Reverse: 1999_ 🎩
+## 🧀 _My fandoms are: Cookie Run: Ovenbreak, Balan Wonderworld, A Hat in Time, D4DJ, PJSK, Honkai (SR and 3rd), Reverse: 1999, Kirby_ 🎩
 
-## 🎩 _I LOVE ROGUEFORT COOKIE W ALL MY HEART!!! THEYRE ONE OF MY COMFORT CHARACTERS! ROGUEFORT FANS PLS INT!!! LETS BE FRIENDS!!_ 🧀
+## 🎩 _I LOVE ROGUEFORT COOKIE W ALL MY HEART!!!_ 🧀
+
+## 🧀 _Roguefort Cookie fans, Balan Wonderworld fans (do u exist???), artists, D4DJ fans PLS INT!!!_ 🎩
 
 ![мой айкью достиг отметки папашки мистера макса](https://github.com/user-attachments/assets/a96a0511-6c2f-490b-9f90-25909e523be5)
