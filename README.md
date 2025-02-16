@@ -1,12 +1,11 @@
-  ![панки хой](https://github.com/user-attachments/assets/0b240649-1a8a-4ac6-9500-01531ead4d58)
-# 🎩 _HOI! U can call me Shlyapa, or Hatty, or just Hat ! (any prns if what)_ 🎩
+  ![coggggggg](https://github.com/user-attachments/assets/5bcdef44-a0de-4931-83e1-fe49e1062a5c)
 
-## 🎩 _Im a digital artist, cookie run mememaker, and just a stupid person who loves Roguefort Cookie (and other thieves hehehehe)_ 🧀
+# 🎩 _HOI! U can call me Hatty, or just Hat ! (any if what)_ 🎩
 
-## 🧀 _My fandoms are: Cookie Run: Ovenbreak, Balan Wonderworld, A Hat in Time, D4DJ, PJSK, Honkai (SR and 3rd), Reverse: 1999, Kirby_ 🎩
+## 🎩 _Im an aspiring digital artist, cookie run mememaker, and just a stupid person who loves phantom thieves and steampunk_ ⚙
 
-## 🎩 _I LOVE ROGUEFORT COOKIE W ALL MY HEART!!!_ 🧀
+## ⚙ _My current interests are: Cookie Run: Ovenbreak, Balan Wonderworld, A Hat in Time, D4DJ, PJSK, Reverse: 1999, Kirby_ 🎩
 
-## 🧀 _Roguefort Cookie fans, Balan Wonderworld fans (do u exist???), artists, D4DJ fans PLS INT!!!_ 🎩
+## ⚙ _Roguefort Cookie fans, all TBD Cookies fans; Balan Wonderworld fans (do u even exist???), artists, PLS INT!!!_ 🎩
 
-![мой айкью достиг отметки папашки мистера макса](https://github.com/user-attachments/assets/a96a0511-6c2f-490b-9f90-25909e523be5)
+![ilovehersomuchhhh](https://github.com/user-attachments/assets/fa5609d4-10e8-494e-81e6-9320991f910f)
