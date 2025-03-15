@@ -4,7 +4,7 @@
 
 ## 🎩 _Im an aspiring digital artist, cookie run mememaker, and just a stupid person who loves phantom thieves and steampunk_ ⚙
 
-## ⚙ _My current interests are: Cookie Run: Ovenbreak, Balan Wonderworld, A Hat in Time, D4DJ, PJSK, Reverse: 1999, Kirby_ 🎩
+## ⚙ _My current fav games are: Cookie Run: Ovenbreak, Balan Wonderworld, PJSK, Kirby, Tomodachi Life_ 🎩
 
 ## ⚙ _Roguefort Cookie fans, all TBD Cookies fans; Balan Wonderworld fans (do u even exist???), artists, PLS INT!!!_ 🎩
 
