@@ -2,7 +2,7 @@
 
 # 🎩 _HOI! U can call me Hatty, or just Hat ! (any if what)_ 🎩
 
-## 🎩 _Im an aspiring digital artist, cookie run mememaker, and just a stupid person who loves phantom thieves and steampunk_ ⚙
+## 🎩 _Im an aspiring digital artist and just a stupid person who loves phantom thieves and steampunk_ ⚙
 
 ## ⚙ _My current fav games are: Cookie Run: Ovenbreak, Balan Wonderworld, PJSK, Kirby, Tomodachi Life_ 🎩
 
