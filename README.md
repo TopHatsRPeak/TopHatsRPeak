@@ -6,6 +6,6 @@
 
 ## ⚙ _my current fav media are: Cookie Run: Ovenbreak, Balan Wonderworld, PJSK, Kirby, Tomodachi Life, Miitopia and HSR_ 🎩
 
-## ✨ _ ilove cipher i love cipher i love cipher_ 💎
+## ✨ _ilove cipher i love cipher i love cipher_ 💎
 
 ![цифарка глупаяяяяя](https://github.com/user-attachments/assets/14650b92-2853-4a5b-827e-13f85b820b3a)
