@@ -4,8 +4,8 @@
 
 ## 💎 _an aspiring digital artist and just a stupid person who loves phantom thieves and other thief characters hehe_ 🎭
 
-## ⚙ _my current fav media are: Cookie Run: Ovenbreak, Balan Wonderworld, PJSK, Kirby, Tomodachi Life, HSR_ 🎩
+## ⚙ _my current fav media are: Cookie Run: Ovenbreak, Balan Wonderworld, PJSK, Kirby, Tomodachi Life, Miitopia and HSR_ 🎩
 
-## ✨ _Cipher fan and future Cipher main yayaaay_ 💎
+## ✨ _ ilove cipher i love cipher i love cipher_ 💎
 
 ![цифарка глупаяяяяя](https://github.com/user-attachments/assets/14650b92-2853-4a5b-827e-13f85b820b3a)
