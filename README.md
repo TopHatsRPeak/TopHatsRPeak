@@ -4,7 +4,7 @@
 
 ## [![7187fb92.gif](https://i.postimg.cc/W3z7s0c2/7187fb92.gif)](https://postimg.cc/gX9hDX05) _an aspiring digital artist and just a goofy awkward person who REALLY loves phantom thieves and yapping about their OCs_ 
 
-## [![c4cc987b.gif](https://i.postimg.cc/VsS3RC0Q/c4cc987b.gif)](https://postimg.cc/9zh8XzBJ) _im currently into: Splatoon, Cookie Run: Ovenbreak, Balan Wonderworld, Kirby, Tomodachi Life, Miitopia, HSR_ 
+## [![c4cc987b.gif](https://i.postimg.cc/VsS3RC0Q/c4cc987b.gif)](https://postimg.cc/9zh8XzBJ) _im currently into: Splatoon (!!!), Cookie Run: Ovenbreak, Balan Wonderworld, Kirby, Tomodachi Life, Miitopia, HSR_ 
 
 ## [![86be4139.gif](https://i.postimg.cc/GtsJyrpV/86be4139.gif)](https://postimg.cc/D4nb99LP) _PLEASE PLEASE PLEASE INT IF YOU ARE: a splatoon player, crob player, an artist (~especially w cartoonish artstyle haha~) or have your OCs_ 
 
