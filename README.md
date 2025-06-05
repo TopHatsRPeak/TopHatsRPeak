@@ -2,17 +2,17 @@
 
 ![Image](https://plasticdino.net/blinkie/fishy.gif)
 
-#  _HOI! Call me Hatty, or just Hat (i dont mind any nicknames)_ 
+#  _HOI! Call me Hatty or just Hat (i dont mind any nicknames)_ 
 
-## 💤 _an aspiring digital artist and just a goofy awkward person who REALLY loves phantom thieves and yaps about their OCs_ 
+### 💤 _an aspiring digital artist and just a goofy awkward person who REALLY loves phantom thieves and yaps about their OCs_ 
 
-## 💤 _my current fav media are: Splatoon, Cookie Run: Ovenbreak, Balan Wonderworld, Kirby, Tomodachi Life, Miitopia, HSR_ 
+### 💤 _my current fav media are: Splatoon, Cookie Run: Ovenbreak, Balan Wonderworld, Kirby, Tomodachi Life, Miitopia, HSR_ 
 
 ![Image](https://plasticdino.net/blinkie/841.gif)
 
-## 💙 _PLEASE PLEASE PLEASE INT IF YOU ARE: a splatoon player, crob player, an artist (especially w cartoonish artstyle haha) or have your OCs_ 
+## 💙 _PLEASE PLEASE PLEASE INT IF YOU ARE: a splatoon player, crob player, an artist (~especially w cartoonish artstyle haha~) or have your OCs_ 
 
-## _TYSM for reading this! Catch ya later! (and pls int w me)_ 
+# _TYSM for reading this! Catch ya later! (~and pls int w me~)_ 
 
 ![Image](https://plasticdino.net/blinkie/b29.gif) ![Image](https://plasticdino.net/blinkie/59.gif) ![Image](https://plasticdino.net/blinkie/internetloser.gif) ![Image](https://plasticdino.net/blinkie/mamamia.gif) 
 
