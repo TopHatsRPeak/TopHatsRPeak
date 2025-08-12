@@ -17,6 +17,7 @@ real
 
  ***Call me Hatty or Tanchik***  ![tumblr_lkl64lxvRu1qfamg6540](https://github.com/user-attachments/assets/365f9a0b-6d96-41ba-ba34-0c38bfedba8f)
 
+INT AND C+H FREELY!!!
 
  Im a quite shy person BUT IM **VERY** CHATTY TRUST ME. 
 
@@ -25,7 +26,7 @@ real
 
 
 ![tumblr_ll7wi9Eeow1qi6qow540](https://github.com/user-attachments/assets/fb6dd9ae-3ef0-44f5-b69c-7b5c4936d431)
- **My fav media are: Splatoon (!!!), Tomodachi Life (!!!), Miitopia, Cookie Run: Ovenbreak, Skullgirls, Kirby, Kaitou Queen, Lucky Star (only manga...) and Illusion Carnival** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
+ **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Cookie Run: Ovenbreak, Skullgirls, Kirby, Kaitou Queen, Lucky Star (only manga...) and Illusion Carnival** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
 
 
 **ALSO** I love phantom thieves (and fictional thieves in general!!!), I draw sometimes and talk about my OCs and favs... (~I LITERALLY YAP ABOUT THEM ALL THE TIME~) <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
@@ -34,4 +35,13 @@ real
 ![tumblr_01d1ea7f4a1c81c5361d81e93b453232_3457c897_250](https://github.com/user-attachments/assets/0108ea5d-81ce-4727-84cc-19d9a45161bc) 
 ![blinkiesCafe-jn](https://github.com/user-attachments/assets/d0649329-22be-4cbc-b078-5ac2eb0e38b5)
 ![59](https://github.com/user-attachments/assets/936862e4-3c9c-4834-8dd8-61556b4c61e3)
+
+i will add some more info later ig 
+
+<img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/87d129fa-4000-4f99-badb-c8464b2ff423" />
+
+
+![9567a968](https://github.com/user-attachments/assets/334b6d9a-2987-4350-9ab8-21fc0079f9c3)
+
+wish me luck on getting a 3ds and play streetpass mii plaza PLEASEJKUASDJOAJSDZFOISDF
 
