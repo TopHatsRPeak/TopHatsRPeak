@@ -1,4 +1,7 @@
-<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2b5ad2b7-54c3-488b-b85d-a4f2a5694b49" />
+![xp](https://github.com/user-attachments/assets/4da86741-34a6-49e1-b029-be69321f3aa9)
+
+<img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2b5ad2b7-54c3-488b-b85d-a4f2a5694b49" /> 
+
 
 real
 
@@ -15,13 +18,20 @@ real
  ***Call me Hatty or Tanchik***  ![tumblr_lkl64lxvRu1qfamg6540](https://github.com/user-attachments/assets/365f9a0b-6d96-41ba-ba34-0c38bfedba8f)
 
 
- Im a quite awkward person BUT IM **VERY** CHATTY. 
+ Im a quite shy person BUT IM **VERY** CHATTY TRUST ME. 
 
 
-![blinkielove](https://github.com/user-attachments/assets/310811a7-97dc-4e03-9480-9fcf084faf65) ![mspaint1](https://github.com/user-attachments/assets/37c3594e-e7a4-4f58-8dee-b540d2a46327)
-
-**My current fav media are: Splatoon (!!!), Tomodachi Life (!!!), Miitopia, Cookie Run: Ovenbreak, Skullgirls, Kirby, Kaitou Queen, Lucky Star (only manga...) and Illusion Carnival** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
+![blinkielove](https://github.com/user-attachments/assets/310811a7-97dc-4e03-9480-9fcf084faf65) ![mspaint1](https://github.com/user-attachments/assets/37c3594e-e7a4-4f58-8dee-b540d2a46327) ![internetloser (1)](https://github.com/user-attachments/assets/3f47d4be-7de1-4855-9f39-0dc516bfa8cb)
 
 
-ALSO I love phantom thieves (and fictional thieves in general!!!), I draw sometimes and talk about my OCs and favs... (~I LITERALLY YAP ABOUT THEM ALL THE TIME~)
+![tumblr_ll7wi9Eeow1qi6qow540](https://github.com/user-attachments/assets/fb6dd9ae-3ef0-44f5-b69c-7b5c4936d431)
+ **My fav media are: Splatoon (!!!), Tomodachi Life (!!!), Miitopia, Cookie Run: Ovenbreak, Skullgirls, Kirby, Kaitou Queen, Lucky Star (only manga...) and Illusion Carnival** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
+
+
+**ALSO** I love phantom thieves (and fictional thieves in general!!!), I draw sometimes and talk about my OCs and favs... (~I LITERALLY YAP ABOUT THEM ALL THE TIME~) <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
+
+
+![tumblr_01d1ea7f4a1c81c5361d81e93b453232_3457c897_250](https://github.com/user-attachments/assets/0108ea5d-81ce-4727-84cc-19d9a45161bc) 
+![blinkiesCafe-jn](https://github.com/user-attachments/assets/d0649329-22be-4cbc-b078-5ac2eb0e38b5)
+![59](https://github.com/user-attachments/assets/936862e4-3c9c-4834-8dd8-61556b4c61e3)
 
