@@ -43,5 +43,5 @@ i will add some more info later ig
 
 ![9567a968](https://github.com/user-attachments/assets/334b6d9a-2987-4350-9ab8-21fc0079f9c3)
 
-wish me luck on getting a 3ds and playing streetpass mii plaza PLEASEJKUASDJOAJSDZFOISDF
+wish me luck on getting a 3ds PLEASEJKUASDJOAJSDZFOISDF
 
