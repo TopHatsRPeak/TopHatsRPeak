@@ -26,7 +26,7 @@ INT AND C+H FREELY!!!
 
 
 ![tumblr_ll7wi9Eeow1qi6qow540](https://github.com/user-attachments/assets/fb6dd9ae-3ef0-44f5-b69c-7b5c4936d431)
- **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Skullgirls, Kirby, Kaitou Queen, Lucky Star (only manga...) and Illusion Carnival** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
+ **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Skullgirls, Kirby, Kaitou Queen, Lucky Star (only manga...), A Hat In Time and Illusion Carnival** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
 
 
 **ALSO** I love phantom thieves (and fictional thieves in general!!!), I draw sometimes and talk about my OCs and favs... (~I LITERALLY YAP ABOUT THEM ALL THE TIME~) <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
