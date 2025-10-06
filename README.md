@@ -19,7 +19,7 @@ real
 
 INT AND C+H FREELY!!!
 
- Im a quite shy person BUT IM **VERY** CHATTY TRUST ME. 
+ Im a quite shy person BUT IM **VERY** TALKATIVE TRUST ME. 
 
 
 ![blinkielove](https://github.com/user-attachments/assets/310811a7-97dc-4e03-9480-9fcf084faf65) ![mspaint1](https://github.com/user-attachments/assets/37c3594e-e7a4-4f58-8dee-b540d2a46327) ![internetloser (1)](https://github.com/user-attachments/assets/3f47d4be-7de1-4855-9f39-0dc516bfa8cb)
