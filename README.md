@@ -27,14 +27,15 @@ real
  **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Streetpass Mii Plaza, Skullgirls, Kirby, Kaitou Queen, A Hat In Time, Illusion Carnival, Umamusume, Yun Yun Syndrome.....** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
 
 
-**ALSO** I love fictional thieves, I draw sometimes and talk about my OCs and favs... (~i yap abt them almost all the time.~) <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
+**ALSO** I love thief characters, top-hats and uuhhhhhh I draw sometimes, yap a lot abt my favs and OCs..... <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
 
+thats all ig 
 
 ![tumblr_01d1ea7f4a1c81c5361d81e93b453232_3457c897_250](https://github.com/user-attachments/assets/0108ea5d-81ce-4727-84cc-19d9a45161bc) 
 ![blinkiesCafe-jn](https://github.com/user-attachments/assets/d0649329-22be-4cbc-b078-5ac2eb0e38b5)
 ![59](https://github.com/user-attachments/assets/936862e4-3c9c-4834-8dd8-61556b4c61e3)
 
-i hate bennet worthington!!!!!!!!!!
+waaahhhhh i hate bennet worthington!!!!!!!!!!
 
 <img width="300" height="300" alt="image" src="https://github.com/user-attachments/assets/87d129fa-4000-4f99-badb-c8464b2ff423" />
 
