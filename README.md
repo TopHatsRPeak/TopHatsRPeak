@@ -17,7 +17,7 @@ real
 
  ***Call me Hatty or Tanchik***  ![tumblr_lkl64lxvRu1qfamg6540](https://github.com/user-attachments/assets/365f9a0b-6d96-41ba-ba34-0c38bfedba8f)
 
- Im a bit shy person BUT also **VERY** talkative heh 
+ Im a lil bit awkward person BUT also very chatty trust me
 
 
 ![blinkielove](https://github.com/user-attachments/assets/310811a7-97dc-4e03-9480-9fcf084faf65) ![mspaint1](https://github.com/user-attachments/assets/37c3594e-e7a4-4f58-8dee-b540d2a46327) ![internetloser (1)](https://github.com/user-attachments/assets/3f47d4be-7de1-4855-9f39-0dc516bfa8cb)
@@ -27,7 +27,7 @@ real
  **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Streetpass Mii Plaza, Skullgirls, Balan Wonderworld, Kirby, Kaitou Queen, A Hat In Time, Illusion Carnival, Umamusume, Yun Yun Syndrome, Animal Crossing.....** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
 
 
-**ALSO** I love thief characters, top-hats and uuhhhhhh I draw sometimes, yap a lot abt my favs and OCs..... <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
+**ALSO** I love thief characters, top-hats and uuhhhhhh I draw sometimes, yap abt my favs and OCs..... <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
 
 thats all ig 
 
@@ -46,3 +46,4 @@ waaahhhhh i hate bennet worthington!!!!!!!!!!
 
 
  💜💜💜
+
