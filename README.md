@@ -17,7 +17,7 @@
 
 ![blinkielove](https://github.com/user-attachments/assets/310811a7-97dc-4e03-9480-9fcf084faf65) ![mspaint1](https://github.com/user-attachments/assets/37c3594e-e7a4-4f58-8dee-b540d2a46327) ![internetloser (1)](https://github.com/user-attachments/assets/3f47d4be-7de1-4855-9f39-0dc516bfa8cb)![d39](https://github.com/user-attachments/assets/a8cad0d4-3f3e-41fd-aba2-e841763863f1)
 
-
+<img width="160" height="160" alt="Spr_4d_385" src="https://github.com/user-attachments/assets/68053b74-f552-475a-8b04-b5960d016c4c" /> 
 
 ![tumblr_ll7wi9Eeow1qi6qow540](https://github.com/user-attachments/assets/fb6dd9ae-3ef0-44f5-b69c-7b5c4936d431)
  **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Balan Wonderworld, Kirby, Kaitou Queen, Illusion Carnival, Umamusume, Yun Yun Rhythm Psychosis, Animal Crossing.....** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
@@ -39,3 +39,5 @@ thats all i think
 
 
  theyre kissing💜💜💜
+
+<img width="104" height="94" alt="Spr_3e_385" src="https://github.com/user-attachments/assets/69fbe9cd-13bf-4831-bccc-8892a7b5a2c8" />
