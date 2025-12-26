@@ -24,7 +24,7 @@ real
 
 
 ![tumblr_ll7wi9Eeow1qi6qow540](https://github.com/user-attachments/assets/fb6dd9ae-3ef0-44f5-b69c-7b5c4936d431)
- **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Streetpass Mii Plaza, Skullgirls, Balan Wonderworld, Kirby, Kaitou Queen, A Hat In Time, Illusion Carnival, Umamusume, Yun Yun Rhythm Psychosis, Animal Crossing.....** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
+ **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Balan Wonderworld, Kirby, Kaitou Queen, A Hat In Time, Illusion Carnival, Umamusume, Yun Yun Rhythm Psychosis, Animal Crossing.....** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
 
 
 **ALSO** I love thief characters, top-hats and uuhhhhhh I draw sometimes, yap abt my favs and OCs..... <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
