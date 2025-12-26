@@ -1,25 +1,16 @@
-
-![ouchie](https://github.com/user-attachments/assets/3c2eaa78-8558-4640-9fd7-f520777204da)
-![screaming (1)](https://github.com/user-attachments/assets/cccc298c-dbe0-4ad9-a343-6443e043cba0)
-![website4](https://github.com/user-attachments/assets/7c829003-4598-4104-bd5b-04e196dd28f4)
-![iloveglitter](https://github.com/user-attachments/assets/a0584a4d-4307-4e5c-ae89-9d42cc25095c)
+![0127-splatoon1](https://github.com/user-attachments/assets/cab7ee90-478b-446e-8e55-09f383aaec07)![0128-splatoon2](https://github.com/user-attachments/assets/65789ae7-e851-4c7c-9ed9-ff992c9469cc)![0129-splatoon3](https://github.com/user-attachments/assets/240bda01-2e3f-4458-8602-33f4bb1a4250)
 
 
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2b5ad2b7-54c3-488b-b85d-a4f2a5694b49" /> 
 
 so real
 
-![gbanet](https://github.com/user-attachments/assets/d747a128-cd54-4515-ab02-dc0e951c326e)![miku](https://github.com/user-attachments/assets/7b9ce8a2-3550-4953-8004-9e3ed9e9981b)![hicolor](https://github.com/user-attachments/assets/c047912c-4438-46e6-a223-846adb3e430f)
+
+<img width="99" height="56" alt="e73" src="https://github.com/user-attachments/assets/cd508d8a-b880-4328-873c-b42beee9418c" /><img width="99" height="56" alt="b1" src="https://github.com/user-attachments/assets/71a84c98-d198-4e07-9bba-9f6de50e39d7" /><img width="97" height="57" alt="a56" src="https://github.com/user-attachments/assets/87fa5f99-caa6-4c41-9fb2-0b8329f86d93" /><img width="99" height="56" alt="e105" src="https://github.com/user-attachments/assets/412807c1-2bfc-4c47-ab4b-aad6ca641242" />
 
 
-
-![ds](https://github.com/user-attachments/assets/d6e524c4-cc6a-4977-9286-c612f543cb7a)
- ![blinkiesCafe-oE](https://github.com/user-attachments/assets/5b6afe74-afaf-459b-94b2-795a39f3eb8b) 
+![ds](https://github.com/user-attachments/assets/d6e524c4-cc6a-4977-9286-c612f543cb7a)![g63](https://github.com/user-attachments/assets/2710a67c-5f92-4662-9f72-5175dbaf29a2)![c43](https://github.com/user-attachments/assets/fbc7a7cc-5dc7-4587-9f75-8ee9501e4be5)![blinkiesCafe-oE](https://github.com/user-attachments/assets/5b6afe74-afaf-459b-94b2-795a39f3eb8b) 
  
-![0127-splatoon1](https://github.com/user-attachments/assets/cab7ee90-478b-446e-8e55-09f383aaec07)
-![0128-splatoon2](https://github.com/user-attachments/assets/65789ae7-e851-4c7c-9ed9-ff992c9469cc)
-![0129-splatoon3](https://github.com/user-attachments/assets/240bda01-2e3f-4458-8602-33f4bb1a4250)
-
 
 ## ***hiii hello haii welcome to my page!!*** ![7641d753](https://github.com/user-attachments/assets/88a8b487-9ecb-4b8a-a4b4-e91d17af4667)
 
