@@ -11,7 +11,7 @@
 
 ## ***hiii hello haii welcome to my page!!*** ![7641d753](https://github.com/user-attachments/assets/88a8b487-9ecb-4b8a-a4b4-e91d17af4667)
 
- ***Call me Hatty or Tanchik***  ![tumblr_lkl64lxvRu1qfamg6540](https://github.com/user-attachments/assets/365f9a0b-6d96-41ba-ba34-0c38bfedba8f)
+###  ***Call me Hatty or Tanchik***  ![tumblr_lkl64lxvRu1qfamg6540](https://github.com/user-attachments/assets/365f9a0b-6d96-41ba-ba34-0c38bfedba8f)
 
  im a lil bit awkward person BUT i love to talk a lot
 
