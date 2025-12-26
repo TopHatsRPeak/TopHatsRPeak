@@ -2,6 +2,8 @@
 ![ouchie](https://github.com/user-attachments/assets/3c2eaa78-8558-4640-9fd7-f520777204da)
 ![screaming (1)](https://github.com/user-attachments/assets/cccc298c-dbe0-4ad9-a343-6443e043cba0)
 ![website4](https://github.com/user-attachments/assets/7c829003-4598-4104-bd5b-04e196dd28f4)
+![iloveglitter](https://github.com/user-attachments/assets/a0584a4d-4307-4e5c-ae89-9d42cc25095c)
+
 
 <img width="400" height="400" alt="image" src="https://github.com/user-attachments/assets/2b5ad2b7-54c3-488b-b85d-a4f2a5694b49" /> 
 
@@ -12,7 +14,11 @@ so real
 
 
 ![ds](https://github.com/user-attachments/assets/d6e524c4-cc6a-4977-9286-c612f543cb7a)
- ![blinkiesCafe-oE](https://github.com/user-attachments/assets/5b6afe74-afaf-459b-94b2-795a39f3eb8b) ![b29](https://github.com/user-attachments/assets/0e1256dc-bc5b-4936-9bf6-ea90cc2e971b)
+ ![blinkiesCafe-oE](https://github.com/user-attachments/assets/5b6afe74-afaf-459b-94b2-795a39f3eb8b) 
+ 
+![0127-splatoon1](https://github.com/user-attachments/assets/cab7ee90-478b-446e-8e55-09f383aaec07)
+![0128-splatoon2](https://github.com/user-attachments/assets/65789ae7-e851-4c7c-9ed9-ff992c9469cc)
+![0129-splatoon3](https://github.com/user-attachments/assets/240bda01-2e3f-4458-8602-33f4bb1a4250)
 
 
 ## ***hiii hello haii welcome to my page!!*** ![7641d753](https://github.com/user-attachments/assets/88a8b487-9ecb-4b8a-a4b4-e91d17af4667)
@@ -22,7 +28,9 @@ so real
  Im a lil bit awkward person BUT also VERY chatty :3
 
 
-![blinkielove](https://github.com/user-attachments/assets/310811a7-97dc-4e03-9480-9fcf084faf65) ![mspaint1](https://github.com/user-attachments/assets/37c3594e-e7a4-4f58-8dee-b540d2a46327) ![internetloser (1)](https://github.com/user-attachments/assets/3f47d4be-7de1-4855-9f39-0dc516bfa8cb)
+![blinkielove](https://github.com/user-attachments/assets/310811a7-97dc-4e03-9480-9fcf084faf65) ![mspaint1](https://github.com/user-attachments/assets/37c3594e-e7a4-4f58-8dee-b540d2a46327) ![internetloser (1)](https://github.com/user-attachments/assets/3f47d4be-7de1-4855-9f39-0dc516bfa8cb)![d39](https://github.com/user-attachments/assets/a8cad0d4-3f3e-41fd-aba2-e841763863f1)![3765710xerg26m8r7](https://github.com/user-attachments/assets/f4ecf807-97d5-4d61-9c6f-658bbff0b8ee)
+
+
 
 
 ![tumblr_ll7wi9Eeow1qi6qow540](https://github.com/user-attachments/assets/fb6dd9ae-3ef0-44f5-b69c-7b5c4936d431)
@@ -40,10 +48,7 @@ so real
 
 
 
-![9567a968](https://github.com/user-attachments/assets/334b6d9a-2987-4350-9ab8-21fc0079f9c3)
-
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/341327bf-5035-4226-bb42-b7e13bbf9f38" />
 
 
  💜💜💜
-
