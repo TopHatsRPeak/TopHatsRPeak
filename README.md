@@ -38,6 +38,6 @@ thats all i think
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/341327bf-5035-4226-bb42-b7e13bbf9f38" />
 
 
- theyre kissing💜💜💜
+ they kiss💜💜💜
 
 <img width="104" height="94" alt="Spr_3e_385" src="https://github.com/user-attachments/assets/69fbe9cd-13bf-4831-bccc-8892a7b5a2c8" />
