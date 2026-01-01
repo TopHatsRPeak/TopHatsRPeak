@@ -20,12 +20,12 @@
 <img width="160" height="160" alt="Spr_4d_385" src="https://github.com/user-attachments/assets/68053b74-f552-475a-8b04-b5960d016c4c" /> 
 
 ![tumblr_ll7wi9Eeow1qi6qow540](https://github.com/user-attachments/assets/fb6dd9ae-3ef0-44f5-b69c-7b5c4936d431)
- **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Balan Wonderworld, Kirby, Kaitou Queen, Illusion Carnival, Umamusume, Yun Yun Rhythm Psychosis, Animal Crossing.....** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
+ **My fav media are: Splatoon (!!!), Tomodachi Life & Collection (!!!), Miitopia, Balan Wonderworld, Kirby, Kaitou Queen, Illusion Carnival, Yun Yun Rhythm Psychosis, Animal Crossing.....** ![7c22245f](https://github.com/user-attachments/assets/4dff6b6e-92aa-4f85-86f8-80d68ec6fdbd)
 
 
 **ALSO** I love thief characters, top-hats and uuhhhhhh I draw sometimes, yap a lot abt my favs and OCs <img width="20" height="20" alt="3527701e" src="https://github.com/user-attachments/assets/c5bb7262-f90b-4eea-b19b-899c12290123" />
 
-**IF U ARE** a miitopia\tomodachi life\splatoon\umamusume fan, an artist, an artist w cartoony artstyle, a nintendo console haver, a person who has OCs then **PLSPLSPLS INT OR BMF** <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e0e78398-59c9-443e-8e0a-f094c96aeb74" /> 
+**IF U ARE** a miitopia\tomodachi life\splatoon fan, an artist, an artist w cartoony artstyle, a nintendo console haver, a person who has OCs then **PLSPLSPLS INT OR BMF** <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e0e78398-59c9-443e-8e0a-f094c96aeb74" /> 
 
 
 
