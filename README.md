@@ -14,6 +14,28 @@
 ###  ***Call me Hatty or Tanchik***  ![tumblr_lkl64lxvRu1qfamg6540](https://github.com/user-attachments/assets/365f9a0b-6d96-41ba-ba34-0c38bfedba8f)
 
 <details>
-<summary>a bit abt me i guess??</summary>
-aaaaaahhhhhhhhh
+<summary>a bit abt me yeah</summary>
+well lets start from that im a QUITE awkward person. buuuut i actually tend to yap and joke (maybe not always funny) a lot......... 
+
+  i ENJOY making new acquaintances so feel free to talk to me hehe
+  
+ and uhhh also sorry if i apologise too much hahaha
+ 
+btw my english is not perfect!!! if i make any spelling mistake feel free 2 correct me!!!
 </details>
+
+<details>
+ <summary>my super duper awesome things i enjoy</summary>
+ 
+- nintendo games
+ 
+ - my OCs..... ~(i love talking about my babies)~
+
+ - **TOP HATS.**
+
+ - uhhhhhh muppet dolls????
+
+ - drawing (kinda rarely tbh)
+ 
+</details>
+
