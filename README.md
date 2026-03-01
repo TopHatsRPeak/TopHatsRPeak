@@ -15,7 +15,5 @@
 
 <details>
 <summary>a bit abt me i guess??</summary>
-
-
-
+aaaaaahhhhhhhhh
 </details>
