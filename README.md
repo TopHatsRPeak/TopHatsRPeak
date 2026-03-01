@@ -3,8 +3,6 @@
 <img width="600" height="400" alt="Без названия101_20251226213224" src="https://github.com/user-attachments/assets/738433b5-2d5a-41b1-9368-ece356e85e9f" />
 
 
-<img width="99" height="56" alt="e73" src="https://github.com/user-attachments/assets/cd508d8a-b880-4328-873c-b42beee9418c" /><img width="99" height="56" alt="b1" src="https://github.com/user-attachments/assets/71a84c98-d198-4e07-9bba-9f6de50e39d7" /><img width="97" height="57" alt="a56" src="https://github.com/user-attachments/assets/87fa5f99-caa6-4c41-9fb2-0b8329f86d93" /><img width="99" height="56" alt="e105" src="https://github.com/user-attachments/assets/412807c1-2bfc-4c47-ab4b-aad6ca641242" />
-
 
 ![ds](https://github.com/user-attachments/assets/d6e524c4-cc6a-4977-9286-c612f543cb7a)![g63](https://github.com/user-attachments/assets/2710a67c-5f92-4662-9f72-5175dbaf29a2)![c43](https://github.com/user-attachments/assets/fbc7a7cc-5dc7-4587-9f75-8ee9501e4be5)![blinkiesCafe-oE](https://github.com/user-attachments/assets/5b6afe74-afaf-459b-94b2-795a39f3eb8b) 
  
@@ -12,6 +10,9 @@
 ## ***hiii hello haii welcome to my page!!*** ![7641d753](https://github.com/user-attachments/assets/88a8b487-9ecb-4b8a-a4b4-e91d17af4667)
 
 ###  ***Call me Hatty or Tanchik***  ![tumblr_lkl64lxvRu1qfamg6540](https://github.com/user-attachments/assets/365f9a0b-6d96-41ba-ba34-0c38bfedba8f)
+
+
+<img width="160" height="160" alt="Spr_4d_385" src="https://github.com/user-attachments/assets/68053b74-f552-475a-8b04-b5960d016c4c" /> <img width="134" height="124" alt="Spr_3e_385" src="https://github.com/user-attachments/assets/69fbe9cd-13bf-4831-bccc-8892a7b5a2c8" />
 
 <details>
 <summary>a bit abt me yeah</summary>
@@ -65,4 +66,24 @@ btw my english is not perfect!!! if i make any spelling mistakes feel free 2 cor
  - shows featuring Muppets (i just started watching Muppets Tonight and fell in love w it immediately) 
  
 </details>
+
+**IF U ARE** a miitopia\tomodachi life\splatoon\muppets fan, an artist, an artist w cartoony artstyle, a nintendo console haver, a person who has OCs then **PLSPLSPLS INT OR BMF** <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e0e78398-59c9-443e-8e0a-f094c96aeb74" /> 
+
+
+
+thats all i think
+
+
+<img width="99" height="56" alt="e73" src="https://github.com/user-attachments/assets/cd508d8a-b880-4328-873c-b42beee9418c" /><img width="99" height="56" alt="b1" src="https://github.com/user-attachments/assets/71a84c98-d198-4e07-9bba-9f6de50e39d7" /><img width="97" height="57" alt="a56" src="https://github.com/user-attachments/assets/87fa5f99-caa6-4c41-9fb2-0b8329f86d93" /><img width="99" height="56" alt="e105" src="https://github.com/user-attachments/assets/412807c1-2bfc-4c47-ab4b-aad6ca641242" />
+
+
+
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/341327bf-5035-4226-bb42-b7e13bbf9f38" />
+
+
+ ohhh theyre so in love 💜💜💜
+
+
+
+
 
