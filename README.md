@@ -21,7 +21,7 @@ well lets start from that im a QUITE awkward person. buuuut i actually tend to y
   
  and uhhh also sorry if i apologise too much hahaha
  
-btw my english is not perfect!!! if i make any spelling mistake feel free 2 correct me!!!
+btw my english is not perfect!!! if i make any spelling mistakes feel free 2 correct me!!!
 </details>
 
 <details>
@@ -31,11 +31,38 @@ btw my english is not perfect!!! if i make any spelling mistake feel free 2 corr
  
  - my OCs..... ~(i love talking about my babies)~
 
- - **TOP HATS.**
+ - ### **TOP HATS.**
 
  - uhhhhhh muppet dolls????
 
- - drawing (kinda rarely tbh)
+ - drawing ~(i draw kinda rarely tbh)~
+
+ - IDK THIEF CHARACTERS THEYRE AWESOME MAN
+ 
+</details>
+
+<details>
+<summary>fav medias!!!!</summary>
+ 
+ - Splatoon 
+
+ - Tomodachi Life & Collection & LTD
+
+ - Miitopia
+
+ - Balan Wonderworld
+
+ - Yun Yun Rhythm Psychosis
+
+ - Pokémon ~(just a bit hahaha)~
+
+ - Umamusume: Pretty Derby
+
+ - Illusion Carnival
+
+ - Kaitou Queen
+
+ - shows featuring Muppets (i just started watching Muppets Tonight and fell in love w it immediately) 
  
 </details>
 
