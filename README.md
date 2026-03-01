@@ -14,8 +14,6 @@
 ###  ***Call me Hatty or Tanchik***  ![tumblr_lkl64lxvRu1qfamg6540](https://github.com/user-attachments/assets/365f9a0b-6d96-41ba-ba34-0c38bfedba8f)
 
 
-<img width="160" height="160" alt="Spr_4d_385" src="https://github.com/user-attachments/assets/68053b74-f552-475a-8b04-b5960d016c4c" /> <img width="134" height="124" alt="Spr_3e_385" src="https://github.com/user-attachments/assets/69fbe9cd-13bf-4831-bccc-8892a7b5a2c8" />
-
 <details>
 <summary>a bit abt me yeah</summary>
 well lets start from that im a QUITE awkward person. buuuut i actually tend to yap and joke (maybe not always funny) a lot......... 
@@ -76,12 +74,15 @@ btw my english is not perfect!!! if i make any spelling mistakes feel free 2 cor
 
 ![bubbles](https://github.com/user-attachments/assets/603de1cd-bcda-40c6-8ac6-9ed1fd112bd2)
 
-**IF U ARE** a miitopia\tomodachi life\splatoon\muppets fan, an artist, an artist w cartoony artstyle, a nintendo console haver, a person who has OCs then **PLSPLSPLS INT OR BMF** <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e0e78398-59c9-443e-8e0a-f094c96aeb74" /> 
+![0cca8d42](https://github.com/user-attachments/assets/0a69d248-cfb3-4315-a121-b309ffe5b729)  **IF U ARE** a miitopia\tomodachi life\splatoon\muppet shows fan, an artist, an artist w cartoony artstyle, a nintendo console haver, a person who has OCs then **PLSPLSPLS INT OR BMF** <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/e0e78398-59c9-443e-8e0a-f094c96aeb74" /> 
 
+![3c9902de](https://github.com/user-attachments/assets/451dbc1a-9021-4c87-adf8-171ff1e6b056)  *no specific dni just **dont be too weird** ok ok ok* 
 
+### thats all i think
 
-thats all i think
+<img width="160" height="160" alt="Spr_4d_385" src="https://github.com/user-attachments/assets/68053b74-f552-475a-8b04-b5960d016c4c" /> <img width="134" height="124" alt="Spr_3e_385" src="https://github.com/user-attachments/assets/69fbe9cd-13bf-4831-bccc-8892a7b5a2c8" />
 
+hehe jirachis
 
 <img width="99" height="56" alt="e73" src="https://github.com/user-attachments/assets/cd508d8a-b880-4328-873c-b42beee9418c" /><img width="99" height="56" alt="b1" src="https://github.com/user-attachments/assets/71a84c98-d198-4e07-9bba-9f6de50e39d7" /><img width="97" height="57" alt="a56" src="https://github.com/user-attachments/assets/87fa5f99-caa6-4c41-9fb2-0b8329f86d93" />
 
@@ -92,8 +93,9 @@ thats all i think
 
 
  ohhh theyre so in love 💜💜💜
+ 
+
+![muppet-clifford](https://github.com/user-attachments/assets/34c2c144-2bfd-4172-9f28-2f1bf54173a1)
 
 
-
-
-
+me when
