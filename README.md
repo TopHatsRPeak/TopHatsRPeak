@@ -36,11 +36,13 @@ btw my english is not perfect!!! if i make any spelling mistakes feel free 2 cor
 
  - ### **TOP HATS.**
 
+ - - cats :3
+
  - uhhhhhh muppets????
 
  - drawing ~(i draw kinda rarely tbh)~
 
- - IDK THIEF CHARACTERS THEYRE AWESOME MAN
+ - IDK THIEVES ~(the fictional ones obv)~????  
  
 </details>
 
