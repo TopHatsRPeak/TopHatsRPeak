@@ -36,7 +36,7 @@ btw my english is not perfect!!! if i make any spelling mistakes feel free 2 cor
 
  - ### **TOP HATS.**
 
- - uhhhhhh muppet dolls????
+ - uhhhhhh muppets????
 
  - drawing ~(i draw kinda rarely tbh)~
 
