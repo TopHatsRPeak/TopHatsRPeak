@@ -4,9 +4,7 @@
 
 
 
-![ds](https://github.com/user-attachments/assets/d6e524c4-cc6a-4977-9286-c612f543cb7a)![blinkiesCafe-oE](https://github.com/user-attachments/assets/5b6afe74-afaf-459b-94b2-795a39f3eb8b)![blinkiefyle (42)](https://github.com/user-attachments/assets/13c43ad2-8ea7-4090-b6a7-0f11be44c375)
-
-![c34](https://github.com/user-attachments/assets/d3db00e8-b98f-4da0-9b93-d725b79ca851)![g63](https://github.com/user-attachments/assets/2710a67c-5f92-4662-9f72-5175dbaf29a2)![c43](https://github.com/user-attachments/assets/fbc7a7cc-5dc7-4587-9f75-8ee9501e4be5)
+![ds](https://github.com/user-attachments/assets/d6e524c4-cc6a-4977-9286-c612f543cb7a)![blinkiesCafe-oE](https://github.com/user-attachments/assets/5b6afe74-afaf-459b-94b2-795a39f3eb8b)![c34](https://github.com/user-attachments/assets/d3db00e8-b98f-4da0-9b93-d725b79ca851)![g63](https://github.com/user-attachments/assets/2710a67c-5f92-4662-9f72-5175dbaf29a2)![c43](https://github.com/user-attachments/assets/fbc7a7cc-5dc7-4587-9f75-8ee9501e4be5)
 
 
 ## ***hiii hello haii welcome to my page!!*** ![7641d753](https://github.com/user-attachments/assets/88a8b487-9ecb-4b8a-a4b4-e91d17af4667)
@@ -96,8 +94,3 @@ hehe jirachis
 
  ohhh theyre so in love 💜💜💜
  
-
-![muppet-clifford](https://github.com/user-attachments/assets/34c2c144-2bfd-4172-9f28-2f1bf54173a1)
-
-
-me when
