@@ -88,9 +88,6 @@ hehe jirachis
 
 <img width="99" height="56" alt="e105" src="https://github.com/user-attachments/assets/412807c1-2bfc-4c47-ab4b-aad6ca641242" /><img width="99" height="56" alt="dark (4)" src="https://github.com/user-attachments/assets/89809efa-3593-49e7-b798-104f67b37e45" />![s2 (6)](https://github.com/user-attachments/assets/ce5425a7-b511-4913-b2fd-e1cd4a04d961)
 
+<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3d586f2f-9121-4548-9e11-876b0f58f802" />
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/341327bf-5035-4226-bb42-b7e13bbf9f38" />
-
-
- ohhh theyre so in love 💜💜💜
- 
+uhhhhhhhhhhhhhh kiss already 
