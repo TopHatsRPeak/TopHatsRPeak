@@ -14,7 +14,7 @@
 
 <details>
 <summary>a bit abt me yeah</summary>
-well lets start from that im a QUITE awkward person. buuuut i actually tend to yap and joke (maybe not always funny) a lot......... 
+well lets start from that im QUITE an awkward person. buuuut i actually tend to yap and joke (maybe not always funny) a lot......... 
 
   i ENJOY making new acquaintances so feel free to talk to me hehe
   
@@ -30,17 +30,11 @@ btw my english is not perfect!!! if i make any spelling mistakes feel free 2 cor
  
 - nintendo games
  
- - my OCs..... ~(i love talking about my babies)~
+ - my OCs..... ~(i rlly rlly rlly enjoy yapping about my stupid creatures uuuuuaaaaghhhhhhhhh)~
 
  - ### **TOP HATS.**
 
- - - cats :3
-
- - uhhhhhh muppets????
-
- - drawing ~(i draw kinda rarely tbh)~
-
- - IDK THIEVES ~(the fictional ones obv)~????  
+- cats :3
  
 </details>
 
@@ -63,12 +57,6 @@ btw my english is not perfect!!! if i make any spelling mistakes feel free 2 cor
 
  - Umamusume: Pretty Derby
 
- - Illusion Carnival
-
- - Kaitou Queen
-
- - shows featuring Muppets (i just started watching Muppets Tonight and fell in love w it immediately) 
- 
 </details>
 
 
