@@ -14,35 +14,35 @@
 
 
 <details>
-<summary>a bit abt me hmmmmm!!</summary>
+<summary>a bit abt me hmmmmm</summary>
 well lets start from that im QUITE an awkward person. buuuut i actually tend to yap and joke (maybe not always funny) a lot......... 
 
   i ENJOY making new acquaintances so feel free to talk to me hehe
   
  and uhhh also sorry if i apologise too much hahaha
  
-btw my english is not perfect!!! if i make any spelling mistakes feel free 2 correct me!!!
+btw my english is not perfect! if i make any spelling mistakes feel free 2 correct me
 </details>
 
 ![bubbles](https://github.com/user-attachments/assets/603de1cd-bcda-40c6-8ac6-9ed1fd112bd2)
 
 <details>
- <summary>my super duper awesome things i enjoy!!</summary>
+ <summary>my super duper awesome things i enjoy</summary>
  
 - nintendo games
  
- - my OCs..... ~(i rlly rlly rlly enjoy yapping about my stupid creatures uuuuuaaaaghhhhhhhhh)~
+ - my OCs... ~(i rlly rlly rlly enjoy yapping about my stupid creatures uuuuuaaaaghhhhhhhhh)~
 
  - ### **TOP HATS.**
 
-- cats :3
+- uhhhhh cats dunno dunno
  
 </details>
 
 ![bubbles](https://github.com/user-attachments/assets/603de1cd-bcda-40c6-8ac6-9ed1fd112bd2)
 
 <details>
-<summary>fav medias!!</summary>
+<summary>fav medias</summary>
  
  - Splatoon 
 
@@ -77,8 +77,6 @@ hehe jirachis
 
 <img width="99" height="56" alt="e105" src="https://github.com/user-attachments/assets/412807c1-2bfc-4c47-ab4b-aad6ca641242" /><img width="99" height="56" alt="dark (4)" src="https://github.com/user-attachments/assets/89809efa-3593-49e7-b798-104f67b37e45" />![s2 (6)](https://github.com/user-attachments/assets/ce5425a7-b511-4913-b2fd-e1cd4a04d961)
 
-<img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3d586f2f-9121-4548-9e11-876b0f58f802" />
 
 <img width="500" height="500" alt="e105" src="https://github.com/user-attachments/assets/059fb902-daca-40c4-b871-dd020d52d80c" />
 
-i hate these mfs w all my heart
