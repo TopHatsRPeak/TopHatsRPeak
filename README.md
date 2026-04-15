@@ -79,7 +79,6 @@ hehe jirachis
 
 <img width="500" height="500" alt="image" src="https://github.com/user-attachments/assets/3d586f2f-9121-4548-9e11-876b0f58f802" />
 
-uhhhhhhhhhhhhhh kiss already 
-
 <img width="500" height="500" alt="e105" src="https://github.com/user-attachments/assets/059fb902-daca-40c4-b871-dd020d52d80c" />
 
+i hate these mfs w all my heart
